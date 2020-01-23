@@ -1,2 +1,2 @@
 # ErinRose
-LIfe is poem
+A Qualitative Study of Ericas
